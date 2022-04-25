@@ -4,7 +4,7 @@ title: Bucket List
 permalink: /bucket/
 ---
 
-I am 21 during the making of this list. I will cross them out as I do them. 
+I am 21 during the start of this list. I will continue to add to it and cross out things as I do them. 
 I chose to exclude things that I've already done
 
 #### In no particular order...
