@@ -35,3 +35,4 @@ I chose to exclude things that I've already done
 - be a millionare
 - win an individual althetic event
 - blow the horn on a semi for some kids
+- shoot a sniper rifle
