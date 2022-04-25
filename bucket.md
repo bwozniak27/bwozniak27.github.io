@@ -4,7 +4,8 @@ title: Bucket List
 permalink: /bucket/
 ---
 
-I am 21 during the making of this list
+I am 21 during the making of this list. I will cross them out as I do them. 
+I chose to exclude things that I've already done
 
 #### In no particular order...
 
@@ -32,3 +33,5 @@ I am 21 during the making of this list
 - kiss a girl right as fireworks go off
 - go to space
 - be a millionare
+- win an individual althetic event
+- blow the horn on a semi for some kids
