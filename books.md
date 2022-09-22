@@ -48,7 +48,7 @@ This is the first book I've ever read in one day. It was my first thriller and I
 
 ### To All The Boys I've Loved Before
 
-I wanted to try a rom-com, so I grabbdd this one. I didn't think I'd like it but I actually did. It felt nostalgic of high school dating and stayed pretty light and I liked it.
+I wanted to try a rom-com, so I grabbed this one. I didn't think I'd like it but I actually did. It felt nostalgic of high school dating and stayed pretty light and I liked it.
 
 ### PS I Still Love You
 
@@ -56,11 +56,25 @@ Book 2 in the series. I thought I was sold on Peter, until I met John. I'm team 
 
 ### Always and Forever
 
-This one wasn't as good, but I had to keep reading. Idk if I like the ending or not. I was hoping it was gonna end with her going to school with John and falling for him, but it didn't. I guess it's nice that her and Peter stayed together, but also, there's like no way they stay together in college. That stuff's a fairytale. P.S: don't watch the movies, they 
+This one wasn't as good, but I had to keep reading. Idk if I like the ending or not. I was hoping it was gonna end with her going to school with John and falling for him, but it didn't. I guess it's nice that her and Peter stayed together, but also, there's like no way they stay together in college. That stuff's a fairytale. P.S: don't watch the movies, they were cheesy as heck.
 
 ### Crazy Rich Asians
 
-I wanted to try a more grown up rom-com, and since I liked this movie, I thought I'd try. It was actually pretty different from the movie. The ending's aren't the same at all, and it wasn't that 
+I wanted to try a more grown up rom-com, and since I liked this movie, I thought I'd try. It was actually pretty different from the movie. The ending's aren't the same at all, and it wasn't that rom-comy actually. The rich life is fun to read about.
 
+### China Rich Girlfriend
 
+I liked that this one had a big emphasis on Astrid. I think she's more interesting than Rachel. It did kinda seem like they were just trying to top the exorbitance of the first book, though, which felt a bit excessive. 
+
+### Rich People Problems
+
+I liked that this one got back to the Youngs. It was crazy in the end to find out Su-Yi didn't actually have any money, so the real rich one was her brother Alfred. Now I'm just left to speculate about how rich he is. I liked this series a lot actually.
+
+### Educated
+
+This was the first memoir I've read, and it was really good. What a crazy life she lived. The abuse parts were hard to read, but when she went to school it was inspiring to read about her learning.
+
+### The Lion, The Witch, And The Wardrobe
+
+This book was definitely aimed at kindergardeners, but that made it a very quick and easy read. The way Lewis describes Aslan is such a cool description of Christ.
 
