@@ -18,7 +18,7 @@ I chose to exclude things that I've already done
 - see a triple rainbow
 - invent a board game
 - drive a tesla
-- climb a mountain (14k)
+- ~~climb a mountain (14k)~~
 - invent a card game
 - write and publish a book
 - see the northern lights
