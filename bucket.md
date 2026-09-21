@@ -17,13 +17,13 @@ I chose to exclude things that I've already done
 - do a triple heel click
 - see a triple rainbow
 - invent a board game
-- drive a tesla
+- ~~drive a tesla~~
 - ~~climb a mountain (14k)~~
 - invent a card game
 - write and publish a book
 - see the northern lights
 - ~~join the 1,000 pound club~~
-- play city of stars on piano
+- ~~play city of stars on piano~~
 - ~~eat pasta in Italy and say, "Hm. must be italian!"~~
 - visit 6 continents
 - touch every ocean
